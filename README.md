@@ -1,1 +1,1 @@
-# ekamfactoryosaka-bit.github.io
+# ekamfactory-osaka
